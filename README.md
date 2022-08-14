@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Brian-Were
+- 🌱 I’m currently learning Software Engineering at ALX
+- 💞️ I’m looking to collaborate on differnt and many projetcs as possible
+- 📫 You can reach me at brianwere66@gmail.com
+-     Instagram @6brivn ,Hit me up.
